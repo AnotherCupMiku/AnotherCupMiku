@@ -119,8 +119,9 @@ ${\textsf{\color{#3c76b3}. "}}$
 ### ♫ | What i hate :
 
 ```txt
-01. nasty things .
-02. creeps .
+01. Asr*el and V*lla ( dni both of you please . )
+02. nasty things .
+03. creeps .
 03. bullies .
 04. being left behind .
 05. being called as my dead name .
