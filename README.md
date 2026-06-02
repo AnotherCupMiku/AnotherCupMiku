@@ -119,7 +119,7 @@ ${\textsf{\color{#3c76b3}. "}}$
 ### ♫ | What i hate :
 
 ```txt
-01. Asr*el and V*lla ( dni both of you please . )
+01. Asr#el and V#lla ( dni both of you please . )
 02. nasty things .
 03. creeps .
 03. bullies .
