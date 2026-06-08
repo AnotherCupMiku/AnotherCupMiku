@@ -142,7 +142,7 @@ ${\textsf{\color{#3c76b3}" see ya later ,}}$
 ${\textsf{\color{#e0265f}newbie}}$
 ${\textsf{\color{#3c76b3}. "}}$
 
-[ asr#el you can go read my new repository or something idgaf anymore bro . ]
+[ asriel you can go read my new repository or something idgaf anymore bro . ]
 
 ═══════════════════════════
 
